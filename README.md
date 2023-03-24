@@ -22,15 +22,15 @@ phone: (951) 241-6144 (make sure to leave a message)
 - ⚡ Fun fact: Your foot is as long as your forearm
 
 
-                                                                      Favorate Quote
-                                                                                      
-                                                                                      
-                                        "You've heard it been said, by them of old, 'Love your neighbor and hate your enemy'. But I say
-                               to you, love your enemies. Do good for them, that hate you. Bless those who curse you. And pray for those who
-                             persicute you and use you despitefuly. So you may be like the children of your Father in Heaven. Because when he
-                             causes the Sun to rise, it rises for the good and the wicked. And when he sends the rain, it rains on both the just 
-                             and the unjust. If you only love those who love you, what reward is there for you? Don't bill collectors do the same?
-                             And if you only say 'what's up' to your bros only, what more do you have than others? Aren't the bill collectors the same?
-                             Therefor be perfect, even as your Father in Heaven is perfect."
+                                                            Favorate Quote
 
-                                                                                                                        -Jesus 
+
+                              "You've heard it been said, by them of old, 'Love your neighbor and hate your enemy'. But I say
+                     to you, love your enemies. Do good for them, that hate you. Bless those who curse you. And pray for those who
+                   persicute you and use you despitefuly. So you may be like the children of your Father in Heaven. Because when he
+                   causes the Sun to rise, it rises for the good and the wicked. And when he sends the rain, it rains on both the just 
+                   and the unjust. If you only love those who love you, what reward is there for you? Don't bill collectors do the same?
+                   And if you only say 'what's up' to your bros only, what more do you have than others? Aren't the bill collectors the same?
+                   Therefor be perfect, even as your Father in Heaven is perfect."
+
+                                                                                                              -Jesus 
